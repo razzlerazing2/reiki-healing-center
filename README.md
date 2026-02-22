@@ -1,2 +1,2 @@
-# reiki-healing-center
-Experience deep relaxation and inner harmony with Nitara's Reiki Crystal Healing &amp; Crystal Massage Therapy. Let the gentle energy of REiki and the powerful vibrations of healing crystals restore balance to your mind, body, and soul.
+# NITARA - Reiki Crystal Healing & Crystal Massage Therapy
+NITARA Reiki & Crystal Healing - Holistic energy healing through Reiki, crystal therapy, and crystal massage for balance, relaxation, and inner wellness.
