@@ -50,7 +50,9 @@ To create a nurturing space where individuals can reconnect with themselves, res
 
 For bookings, inquiries, or collaborations:
 *[(your_gmail_here)]*
+
 *[your_phone_number_here]*
+
 *[your_website_or_social_link_here]*
 
 ---
