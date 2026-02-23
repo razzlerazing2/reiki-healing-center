@@ -1,6 +1,6 @@
-## TAKING FEMALE CLIENTS ONLY!
+# TAKING FEMALE CLIENTS ONLY!
 
-# NITARA - Reiki Crystal Healing & Crystal Massage Therapy⭐
+## NITARA - Reiki Crystal Healing & Crystal Massage Therapy⭐
 
 NITARA's Reiki Healing is a holistic wellness practice offering **Reiki Energy Healing**, **Crystal Massage Therapy** to support emotional balance, stress relief, & overall well being.
 
