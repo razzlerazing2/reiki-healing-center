@@ -1,4 +1,4 @@
-#### TAKING FEMALE CLIENTS ONLY!
+### TAKING FEMALE CLIENTS ONLY!
 
 # NITARA - Reiki Crystal Healing & Crystal Massage Therapy⭐
 
